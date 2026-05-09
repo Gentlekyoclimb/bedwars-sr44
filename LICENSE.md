@@ -1,4 +1,4 @@
-
+bedwars rare Script offers the most advanced bedwars Script, with silent aim and instant win. Perfect for dominating any match.
 
 
 
